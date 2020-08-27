@@ -1,2 +1,0 @@
-# duzkoyogrenciyurdu.github.io
-website
